@@ -1,6 +1,6 @@
 # 贝雪云官网地址
 
-最新地址：[besnow.us](https://www.besnow.org/index.php#/register?code=bcyeijuU)
+最新地址：[besnow.us](https://www.besnow.org/index.php#/register?code=r1K0xiLL)
 
 ## 简介
 
